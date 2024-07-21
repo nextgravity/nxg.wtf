@@ -1,9 +1,9 @@
-# storage_of_stuff
+# nxg.wtf
 my storage
 
 # what even is this
 well, i cant explain myself really.
-i post useful programs, stuff to share on discord, and other things on here
+i post useful programs, and other things on here
 
 # warning
 you're silly xd
